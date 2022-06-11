@@ -1,1 +1,1 @@
-TRabalho de AED
+TRabalho AED
